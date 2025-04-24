@@ -1,2 +1,2 @@
-# Golgotiu-Andreea-Florina-CV
+# Golgotiu Andreea-Florina CV
 CV
